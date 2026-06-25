@@ -29,7 +29,7 @@
 ### 📫 Связаться со мной
 
 - Email: yagellonikita94@gmail.com
-- Резюме на HH: [ссылка]
+- Резюме на HH: https://rostov.hh.ru/resume/4ed9bf37ff10b3d1ac0039ed1f4d7550355651
 
 ---
 
